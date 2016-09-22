@@ -1,4 +1,4 @@
-# (Your Name) - M2 Portfolio
+# Bryan Goss - M2 Portfolio
 
 ## Areas of Emphasis
 
